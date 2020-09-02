@@ -1,0 +1,6 @@
+Ciencia ciudadana
+Biopiratería
+Wikis
+Gestión del conocimiento
+Recuperación del conocimiento
+Conocimientos etnobotánicos
